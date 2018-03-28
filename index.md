@@ -2,6 +2,22 @@
 title: UCP45
 ---
 
+```I wanna marry a lighthouse keeper and keep him company
+I wanna marry a lighthouse keeper and live by the side of the sea
+I'd polish his lamp by the light of day
+So ships at night could find their way
+I wanna marry a lighthouse keeper, won't that be okay?
+We'll take walks along the moonlit shore, maybe find a treasure or two
+I'd love livin' in a lighthouse... How 'bout you?
+Dream of livin' in a lighthouse, baby, every single day
+Dream of livin' in a lighthouse, a white one by the bay
+So if you wanna make my dreams come true
+You'll be a lighthouse keeper or two
+We could live in a lighthouse
+Won't that be oka-a-ay?
+White one by the ba-a-ay--
+La-da-de-da-da!```
+
 # Objectives
 1. Foster transparent communitcation with citizens, delegates, and candidates.
 2. Cooperate in researching the relevant political offices, candidates, and issues.
